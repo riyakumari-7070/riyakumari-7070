@@ -10,7 +10,7 @@ Hi👋, I’m Riya kumari
 <br>
 . 😄 Pronouns:Femal
 <br>
-. ⚡ Fun fact😄😊😍😄<br>
+. ⚡ Fun fact😋🤭😋<br>
 
 <!---
 riyakumari-7070/riyakumari-7070 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
